@@ -1,1 +1,1 @@
-![Vote CPP](https://github.com/user-attachments/assets/ca5d06c5-3efe-449a-a457-0fc9f1adc57d)
+![Vote RCA](https://github.com/user-attachments/assets/0395f4ca-bf99-4fa5-83ea-854c31fa3cfb)
